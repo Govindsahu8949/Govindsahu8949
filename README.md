@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science,and deep learning 
 - 🌱 I’m currently learning data analyst.
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 2022bcagovind12457@poornima.edu.in
+- 📫 How to reach me govindtonk02@gmail.Com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm beggner but i know past few years how to code
 
